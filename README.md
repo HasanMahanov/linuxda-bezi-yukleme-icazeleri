@@ -1,0 +1,1 @@
+# linuxda-bezi-yukleme-icazeleri
